@@ -1,4 +1,4 @@
-#  
+#  Experience enter brainrot heads like never before with enter brainrot heads Script advanced, the #1 Script. Includes auto-heal and auto-farm for
 
 
 
